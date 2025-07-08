@@ -29,7 +29,7 @@ Known for empathetic communication, simplifying medical complexities for patient
 🔗 Learn More
 Explore his official page for advanced gastrointestinal oncology:
 
-Advanced Gastrointestinal Oncology – Dr. Nitin Singhal
+Advanced Gastrointestinal Oncology – Dr. Nitin Singhal - https://www.drnitinsinghal.com/advanced-gastrointestinal-oncology/
 
 (Per GitHub policy, only this official link is provided; no other business links are included.)
 
